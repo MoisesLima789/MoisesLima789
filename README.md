@@ -1,9 +1,6 @@
 Olá! Eu sou o Moisés Lima!🤝
 
-
-
-![Moisés Lima](https://user-images.githubusercontent.com/79329095/162498166-78139f98-dcd4-44f1-908d-fa2a5926a4a0.gif)
-
+![moises Lima](https://user-images.githubusercontent.com/79329095/162526619-5ca48ace-4cba-483d-9c14-791701403d46.gif)
 
 
 
